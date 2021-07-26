@@ -1,2 +1,0 @@
-# asgarzulfigarov
-Portfolio
